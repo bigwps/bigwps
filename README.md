@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bigwps
+🕊️Gmail - aktututu@gmail.com
 
 <!---
 bigwps/bigwps is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
