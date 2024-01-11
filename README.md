@@ -1,4 +1,4 @@
-🕊️Gmail - aktututu@gmail.com
+🕊️
 
 <img src="https://github.com/bigwps/img/blob/main/TIM15.gif" width="225px">
 
